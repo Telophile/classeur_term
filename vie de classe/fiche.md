@@ -15,3 +15,5 @@ je dois travailler encore d avantage afin d augmenter mes notes
 ressenti :
 
 pas mal d inquietude quand a mon niveau pour les ecoles du superieur notamment a cause de mes notes (surtout en spé) , et surtout de ne pas etre accepté dans une ecole .
+
+je me remet donc un peu en question quand a ma possibilité de prousuivre dans ces domaines je vais m en donner les moyens
