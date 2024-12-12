@@ -34,6 +34,13 @@ formation interessante :
 	et réseaux, électronique option A
 	informatique et réseaux (CIEL IR)
 
+	-Bachelor développeur informatique option Cybersécurité
+
+	-Bachelor Cybersécurité - sécurité du numérique
+
+	-Bachelor ingénierie informatique et cybersécurité
+
+	-Licence professionnelle informatique
 
 	
 	
