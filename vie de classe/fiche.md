@@ -66,3 +66,7 @@ EFREI Paris - Prépa biologie et numérique (Villejuif - 94)
 Formation d'ingénieur Bac + 5 - Bacs généraux - 2 Sciences (Statut d'apprenti possible sur tout ou partie des années, au-delà de la première)
 (me parrait tres difficile mais pourquoi pas , entrée sur concours se renseigner sur l accesibilitée)
 
+ESIR Rennes (35)
+Formation d'ingénieur Bac + 5 - Bac général (Statut d'apprenti possible sur tout ou partie des années, au-delà de la première)
+sur concours : Concours Geipi Polytech
+Formation d'ingénieur Bac + 5 - Bac général
