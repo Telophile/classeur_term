@@ -29,10 +29,6 @@ ce qui m interresse :
 	la bioinformatique
 
 formation interessante :
-	
-	-BTS cybersécurité, informatique
-	et réseaux, électronique option A
-	informatique et réseaux (CIEL IR)
 
 	-Bachelor développeur informatique option Cybersécurité
 
@@ -40,8 +36,11 @@ formation interessante :
 
 	-Bachelor ingénierie informatique et cybersécurité
 
-	-Licence professionnelle informatique
+	- Licence - Portail Informatique, sciences et technologies du numérique 
 
+	-concours alpha pour aller en ecole d info voir bio info
+
+	- EFREI Bachelor Ingénierie & Cybersécurité
 	
 	
 ecoles :
